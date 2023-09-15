@@ -25,7 +25,7 @@ Thank you for being a part of my professional journey, and I look forward to con
 
 Best Regards,
 Deepak Yadav 🚀📊📈
-#DataAnalysis #SalesData #PivotTables #BusinessAnalysis #DataInsights #LinkedInPost
+#DataAnalysis #SalesData #PivotTables #BusinessAnalysis #DataInsights
 
 
 
